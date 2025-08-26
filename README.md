@@ -15,7 +15,7 @@
 
 - 📫 How to reach me: **subhakantarath01@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YbqNojJWfWvqAtQX5Kx4k2JcTpAwOE78/view?usp=drive_link](https://drive.google.com/file/d/1YbqNojJWfWvqAtQX5Kx4k2JcTpAwOE78/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YbqNojJWfWvqAtQX5Kx4k2JcTpAwOE78/view?usp=drive_link](https://drive.google.com/file/d/1scnVEHTr9Sd2DRIPHTeVcI7gs4zktdJw/view?usp=sharing)
 
 - ⚡ Fun fact: **I thrive on curiosity—always eager to learn, experiment, and push boundaries in AI and data! 🚀**
 
